@@ -6,9 +6,9 @@
 
 
 
-## Oiii eu sou a Adriana Fregnan
+## Hello I am Adriana Fregnan
 - 😄 Pronouns: She/She
-- 🌱 I’m currently learning Computing/Web Development 
+- 🌱 I’m currently studing  Computing/Web Development/ Information Technology at Birkbeck University of London
 
 
 
